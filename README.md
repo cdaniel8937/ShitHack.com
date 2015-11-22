@@ -1,2 +1,2 @@
 # ShitHack.com
-f u
+u wot m9?
